@@ -24,4 +24,4 @@ I am a 23-year-old gal developing for a company I admire, all the while seeking 
 I am always looking for opportunities to grow as an engineer at the beginning of my career. If you have any suggestions for improving skills of a newbie engineer, I would love to hear them and actively work through something! My career doesn't feel meaningful if I am not bettering myself every day.
 
 ## Contacting me
-- Feel free to reach out via email, which is kenzie.flick172@gmail.com. I am also easy to find on various social media platforms and you are more than welcome to engage me on any of those as well.  
+- Feel free to reach out via email or LinkedIn. I am also easy to find on various other social media platforms and you are more than welcome to engage me on any of those as well.  
