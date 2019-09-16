@@ -1,4 +1,4 @@
-# MacKenzieFlickinger
+# (Mac)Kenzie Flick(inger)
 The following is a little overview of me, from being an engineer at Target to who I am as a person. I hope you can use this to better understand who I am, how I work, and how I grow in life! 
 
 ## About me 
